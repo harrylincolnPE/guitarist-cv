@@ -11,32 +11,30 @@ Recent bands and projects I have written for have been of the post/indie rock vi
 
 ## Live footage (chronological):
 
-https://www.instagram.com/p/BqFaOtIByT7/
-
-https://www.instagram.com/p/BoEcJ-Dgiac/
-https://www.facebook.com/janissaryband/videos/1024847604290148/
-https://www.facebook.com/janissaryband/videos/999197496855159/
-https://www.youtube.com/watch?v=gh8mN8-ASMM
-https://www.facebook.com/janissaryband/videos/1041185015989740/
-https://www.youtube.com/watch?v=8dqqYR8KCY0
-https://www.youtube.com/watch?v=_NqRKNBWHXI
+* https://www.instagram.com/p/BqFaOtIByT7/
+* https://www.instagram.com/p/BoEcJ-Dgiac/
+* https://www.facebook.com/janissaryband/videos/1024847604290148/
+* https://www.facebook.com/janissaryband/videos/999197496855159/
+* https://www.youtube.com/watch?v=gh8mN8-ASMM
+* https://www.facebook.com/janissaryband/videos/1041185015989740/
+* https://www.youtube.com/watch?v=8dqqYR8KCY0
+* https://www.youtube.com/watch?v=_NqRKNBWHXI
 
 ## Videos:
-https://www.youtube.com/watch?v=8qLC75zR5Qk
-
-https://www.youtube.com/watch?v=ptg2UNgsYmo
+* https://www.youtube.com/watch?v=8qLC75zR5Qk
+* https://www.youtube.com/watch?v=ptg2UNgsYmo
 
 ## Jams & home practice:
-https://youtu.be/HePrf-utgHY
-https://www.youtube.com/watch?v=5TtKgE3ZLsQ
-https://www.youtube.com/watch?v=B_ne1rzn9u4
-https://www.youtube.com/watch?v=6V4NCqgha94
-https://www.youtube.com/watch?v=KdVE25gIgpo
-https://www.facebook.com/janissaryband/videos/818310144943896/
+* https://youtu.be/HePrf-utgHY
+* https://www.youtube.com/watch?v=5TtKgE3ZLsQ
+* https://www.youtube.com/watch?v=B_ne1rzn9u4
+* https://www.youtube.com/watch?v=6V4NCqgha94
+* https://www.youtube.com/watch?v=KdVE25gIgpo
+* https://www.facebook.com/janissaryband/videos/818310144943896/
 
 ## Semi-pro / stand-in stuff:
-https://www.youtube.com/watch?v=SIfsiFPsyk0 - Some tour footage with mad proggy band Aedos Cluster of the Waterfall.
-https://www.facebook.com/vocaltrio.thelollipops/ - stand-in guitarist for the odd wedding / function
+* https://www.youtube.com/watch?v=SIfsiFPsyk0 - Some tour footage with mad proggy band Aedos Cluster of the Waterfall.
+* https://www.facebook.com/vocaltrio.thelollipops/ - stand-in guitarist for the odd wedding / function
 
 I'm known to shout sometimes and hold a tune - I wouldn't call them strong skills but I'm sure with enough practice... Here's an old band doing a fairly silly cover of a Spice Girls tune!
 https://www.facebook.com/janissaryband/videos/1144198802355027/
