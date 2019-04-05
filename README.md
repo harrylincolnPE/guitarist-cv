@@ -12,6 +12,7 @@ Recent bands and projects I have written for have been of the post/indie rock vi
 ## Live footage (chronological):
 
 https://www.instagram.com/p/BqFaOtIByT7/
+
 https://www.instagram.com/p/BoEcJ-Dgiac/
 https://www.facebook.com/janissaryband/videos/1024847604290148/
 https://www.facebook.com/janissaryband/videos/999197496855159/
@@ -22,6 +23,7 @@ https://www.youtube.com/watch?v=_NqRKNBWHXI
 
 ## Videos:
 https://www.youtube.com/watch?v=8qLC75zR5Qk
+
 https://www.youtube.com/watch?v=ptg2UNgsYmo
 
 ## Jams & home practice:
