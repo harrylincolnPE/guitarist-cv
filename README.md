@@ -20,7 +20,7 @@ Recent bands and projects I have written for have been of the post/indie rock vi
 * https://www.youtube.com/watch?v=8dqqYR8KCY0
 * https://www.youtube.com/watch?v=_NqRKNBWHXI
 
-## Videos:
+## Music videos:
 * https://www.youtube.com/watch?v=8qLC75zR5Qk
 * https://www.youtube.com/watch?v=ptg2UNgsYmo
 
