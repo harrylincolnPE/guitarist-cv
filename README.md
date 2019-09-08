@@ -17,7 +17,7 @@ Recent bands and projects I have written for have been of the post/indie rock vi
 * https://www.facebook.com/janissaryband/videos/999197496855159/
 * https://www.youtube.com/watch?v=gh8mN8-ASMM
 * https://www.facebook.com/janissaryband/videos/1041185015989740/
-* https://www.youtube.com/watch?v=8dqqYR8KCY0
+* https://www.youtube.com/watch?v=lZsj3L1o2KA
 * https://www.youtube.com/watch?v=_NqRKNBWHXI
 
 ## Music videos:
